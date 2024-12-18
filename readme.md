@@ -1,7 +1,7 @@
 ![miku and rin](https://github.com/user-attachments/assets/841feb31-61f4-4fcb-9531-7040629eb838)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ✿⃞ㅤㅤ🎐ㅤㅤ…ㅤㅤC + Hㅤㅤ★ㅤㅤ11.10 !!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤ˙ㅤㅤaika is cool btw :3ㅤㅤ𝜗
+ㅤㅤ˙ㅤㅤaika is cool btw :3ㅤㅤ𝜗
 
 <!--
 **vv4lr/vv4lr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
