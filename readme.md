@@ -1,7 +1,11 @@
 ![miku and rin](https://github.com/user-attachments/assets/841feb31-61f4-4fcb-9531-7040629eb838)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ✿⃞ㅤㅤ🎐ㅤㅤ…ㅤㅤC + Hㅤㅤ★ㅤㅤ11.10 !!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤ˙ㅤㅤaika is cool btw :3ㅤㅤ𝜗
+ㅤㅤㅤ˙ㅤㅤaika is cool btw :3ㅤㅤ𝜗
+
+TIMEZONE :: GMT +8 !!!
+- main skin is homura + candy girl
+usually afk next 2 docks
 
 <!--
 **vv4lr/vv4lr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
