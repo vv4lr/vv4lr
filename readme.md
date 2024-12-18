@@ -5,7 +5,9 @@
 
 TIMEZONE :: GMT +8 !!!
 - main skin is homura + candy girl
-usually afk next 2 docks
+- usually afk next 2 docks
+- DNI dandys wolrd ( heavy )
+- INT object show community
 
 <!--
 **vv4lr/vv4lr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
