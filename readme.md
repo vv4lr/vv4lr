@@ -17,6 +17,11 @@ FRIENDS that mean a lot to me::::: /p
 
 A, S, C, L, T, R, D :3 ( heavy on A )
 
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=vv4lr&label=Profile%20views&color=0e75b6&style=flat" alt="vv4lr" /> </p>
+
+<h3 align="left">Connect with me:</h3>
+<p align="left">
+</p>
  
 
  
