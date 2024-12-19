@@ -8,8 +8,9 @@ TIMEZONE :: GMT +8 !!!
 - usually afk next 2 docks
 - DNI dandys wolrd ( heavy )
 - INT object show community
+- DNI if i fall under YOUR dni list.
 
-when my gf asked me ifi would love her forever ❤❤, i saids no. before i could finish my sentence with i loves u 5ever! get it? 🤣❤ she already killed herself 🙁💔
+ when my gf asked me ifi would love her forever ❤❤, i saids no. before i could finish my sentence with i loves u 5ever! get it? 🤣❤ she already killed herself 🙁💔when my gf asked me ifi would love her forever ❤❤, i saids no. before i could finish my sentence with i loves u 5ever! get it? 🤣❤ she already killed herself 🙁💔when my gf asked me ifi would love her forever ❤❤, i saids no. before i could finish my sentence with i loves u 5ever! get it? 🤣❤ she already killed herself 🙁💔
 
 uhh im super duper cool. pls int :3 unless i have dni in my name !!!!!!
 
