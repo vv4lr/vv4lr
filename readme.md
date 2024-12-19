@@ -17,7 +17,7 @@ FRIENDS that mean a lot to me::::: /p
 
 A, S, C, L, T, R, D :3 ( heavy on A )
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=vv4lr&label=awesome people&color=0e75b6&style=flat" alt="vv4lr" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=vv4lr&label=superduperawesomepeople&color=8caca8&style=flat" alt="vv4lr" /> </p>
  
 
  
