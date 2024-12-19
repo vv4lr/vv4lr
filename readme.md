@@ -10,11 +10,12 @@ TIMEZONE :: GMT +8 !!!
 - INT object show community
 
 when my gf asked me ifi would love her forever ❤❤, i saids no. before i could finish my sentence with i loves u 5ever! get it? 🤣❤ she already killed herself 🙁💔
+
 uhh im super duper cool. pls int :3 unless i have dni in my name !!!!!!
 
 FRIENDS that mean a lot to me::::: /p
-A, S, C, L, T, R, D :3
- ( heavy on A )
+
+A, S, C, L, T, R, D :3 ( heavy on A )
 
  
 
