@@ -17,4 +17,4 @@
 ㅤ♡ racist, homophobes ect
 
 
-ㅤㅤㅤㅤㅤㅤㅤtimezone is gmt +8 !! u can see what time it is for me underneath my bio i think
+ㅤㅤㅤㅤㅤㅤㅤㅤtimezone is gmt +8 !! u can see what time it is for me underneath my bio i think
