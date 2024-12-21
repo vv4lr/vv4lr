@@ -16,4 +16,5 @@
 ㅤ♡ dark/proshippers ect
 ㅤ♡ racist, homophobes ect
 
-ㅤtimezone is gmt +8 !! u can see what time it is for me underneath my bio i think
+
+ㅤㅤㅤtimezone is gmt +8 !! u can see what time it is for me underneath my bio i think
