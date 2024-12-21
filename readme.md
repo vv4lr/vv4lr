@@ -2,7 +2,7 @@
 
 
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=vv4lr&label=ㅤcoolㅤ♡ㅤpplㅤ&color=ff0688&style=flat" alt="vv4lr" /> </p> ( im cooler :3 / half joke !!! )
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=vv4lr&label=ㅤcoolㅤ♡ㅤpplㅤ&color=ff0688&style=flat" alt="vv4lr" /> </p>
 
 ㅤㅤㅤㅤㅤint list !!
 ㅤ♡ object show community
@@ -15,3 +15,5 @@
 ㅤ♡ exteremly freaky ppl
 ㅤ♡ dark/proshippers ect
 ㅤ♡ racist, homophobes ect
+
+ㅤtimezone is gmt +8 !! u can see what time it is for me underneath my bio i think
