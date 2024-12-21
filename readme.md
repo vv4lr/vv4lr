@@ -2,7 +2,7 @@
 
 
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=vv4lr&label=♡ awesomeㅤpeople&color=ff0688&style=flat" alt="vv4lr" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=vv4lr&label=♡awesomeㅤpeople&color=ff0688&style=flat" alt="vv4lr" /> </p>
 
 <!--
 **vv4lr/vv4lr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
