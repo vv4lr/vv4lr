@@ -5,15 +5,17 @@
 
 ㅤㅤㅤㅤㅤㅤmy timezone is GMT +8 !! u can see what time it is for me underneath my bio i think yeah
 
-fandoms : alien stage, osc, 
+fandoms : alien stage, osc, mlp,
 
  when my gf asked me ifi would love her forever ❤❤, i saids no. before i could finish my sentence with i loves u 5ever! get it? 🤣❤ she already killed herself 🙁💔when my gf asked me ifi would love her forever ❤❤, i saids no. before i could finish my sentence with i loves u 5ever! get it? 🤣❤ she already killed herself 🙁💔when my gf asked me ifi would love her forever ❤❤, i saids no. before i could finish my sentence with i loves u 5ever! get it? 🤣❤ she already killed herself 🙁💔/auido idk
 
-uhh im super duper cool. pls int :3 unless i have dni in my name !!!!!!
+uhh im super duper cool. pls int :3 unless i have dni in my name or DND status is on, pls dni and dnd if i do!!!
 
-FRIENDS that mean a lot to me::::: /p
+friendns  that mean a lot to me:
 
-A, S, C, L, T, R, D :3 ( heavy on A )
+A, S, C, L, T, R, D >>>
+
+yes dexter u still mean a lot to me even if u dont go online much anymore
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vv4lr&label=superduperawesomepeople&color=8caca8&style=flat" alt="vv4lr" /> </p>
  
