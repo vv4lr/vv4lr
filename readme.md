@@ -1,21 +1,11 @@
 ![alien stage](https://github.com/user-attachments/assets/1c82ba0d-2ca7-469b-ba72-94e27b18b8bd)ㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ✿⃞ㅤㅤ🎐ㅤㅤ…ㅤㅤC + Hㅤㅤ★ㅤㅤ11.10 !!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˙ㅤㅤaika is cool btw :3ㅤㅤ𝜗
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˙ㅤㅤaika is cool btw :3ㅤㅤ𝜗
 
 ㅤㅤㅤㅤㅤㅤmy timezone is GMT +8 !! u can see what time it is for me underneath my bio i think yeah
 
-fandoms : alien stage, osc, mlp,
-
- when my gf asked me ifi would love her forever ❤❤, i saids no. before i could finish my sentence with i loves u 5ever! get it? 🤣❤ she already killed herself 🙁💔when my gf asked me ifi would love her forever ❤❤, i saids no. before i could finish my sentence with i loves u 5ever! get it? 🤣❤ she already killed herself 🙁💔when my gf asked me ifi would love her forever ❤❤, i saids no. before i could finish my sentence with i loves u 5ever! get it? 🤣❤ she already killed herself 🙁💔/auido idk
-
-uhh im super duper cool. pls int :3 unless i have dni in my name or DND status is on, pls dni and dnd if i do!!!
-
-friendns  that mean a lot to me:
-
-A, S, C, L, T, R, D >>>
-
-yes dexter u still mean a lot to me even if u dont go online much anymore
+fandoms : alien stage, osc, mlp, sk8 infinity, whisper me a love song, sakura trick, uhh idk
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vv4lr&label=superduperawesomepeople&color=8caca8&style=flat" alt="vv4lr" /> </p>
  
