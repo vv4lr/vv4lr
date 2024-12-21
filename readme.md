@@ -4,17 +4,14 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vv4lr&label=ㅤcoolㅤ♡ㅤpplㅤ&color=ff0688&style=flat" alt="vv4lr" /> </p> ( im cooler :3 / half joke !!! )
 
-<!--
-**vv4lr/vv4lr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ㅤㅤㅤㅤㅤint list !!
+ㅤ♡ object show community
+ㅤ♡ alienstage fans
+ㅤ♡ friendly pepopl
+ㅤ♡ idk bro js int with me
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ㅤㅤㅤㅤㅤdni list!!
+ㅤ♡ dandys world fans
+ㅤ♡ exteremly freaky ppl
+ㅤ♡ dark/proshippers ect
+ㅤ♡ racist, homophobes ect
