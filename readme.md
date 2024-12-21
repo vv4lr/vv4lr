@@ -7,7 +7,7 @@
 
 fandoms : alien stage, osc, mlp, sk8 infinity, whisper me a love song, sakura trick, uhh idk
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=vv4lr&label=superduperawesomepeople&color=##ff0688&style=flat" alt="vv4lr" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=vv4lr&label=superduperawesomepeople&color=#ff0688&style=flat" alt="vv4lr" /> </p>
  
 
  
