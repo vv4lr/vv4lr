@@ -10,7 +10,7 @@
 ㅤ♡ friendly pepopl
 ㅤ♡ idk bro js int with me
 
-ㅤㅤㅤㅤㅤdni list!!
+ㅤㅤㅤㅤdni list!!
 ㅤ♡ dandys world fans
 ㅤ♡ exteremly freaky ppl
 ㅤ♡ dark/proshippers ect
