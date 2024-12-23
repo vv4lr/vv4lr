@@ -15,6 +15,3 @@
 ㅤ♡ exteremly freaky ppl
 ㅤ♡ dark/proshippers ect
 ㅤ♡ racist, homophobes ect
-ㅤ
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤtimezone is gmt +8 !! u can see what time it is for me underneath my bio i think
