@@ -8,7 +8,7 @@
 ㅤ♡ object show community
 ㅤ♡ alienstage fans
 ㅤ♡ friendly pepopl
-ㅤ♡ idk bro js int with me
+ㅤ♡ whisper me a love song fans
 
 ㅤㅤㅤㅤdni list!!
 ㅤ♡ dandys world fans
