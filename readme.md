@@ -10,7 +10,7 @@
 ㅤ♡ friendly pepopl
 ㅤ♡ whisper me a love song fans
 
-ㅤㅤㅤㅤdni list!!
+ㅤㅤㅤㅤdni list !!
 ㅤ♡ dandys world fans
 ㅤ♡ exteremly freaky ppl
 ㅤ♡ dark/proshippers ect
