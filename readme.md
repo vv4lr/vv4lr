@@ -4,13 +4,13 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vv4lr&label=ㅤcoolㅤ♡ㅤpplㅤ&color=000000&style=flat" alt="vv4lr" /> </p>
 
-ㅤㅤㅤㅤㅤint list !!
+ㅤㅤㅤㅤint list !!
 ㅤ♡ object show community
 ㅤ♡ alienstage fans
 ㅤ♡ friendly pepopl
 ㅤ♡ whisper me a love song fans
 
-ㅤㅤㅤㅤdni list !!
+ㅤㅤㅤdni list !!
 ㅤ♡ dandys world fans
 ㅤ♡ exteremly freaky ppl
 ㅤ♡ dark/proshippers ect
