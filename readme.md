@@ -2,7 +2,7 @@
 
 
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=vv4lr&label=ㅤcoolㅤ♡ㅤpplㅤ&color=000000&style=flat" alt="vv4lr" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=vv4lr&label=ㅤcoolㅤ♡ㅤpplㅤ&color=2cabf7&style=flat" alt="vv4lr" /> </p>
 
 ㅤㅤㅤㅤint list !!
 ㅤ♡ object show community
