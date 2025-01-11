@@ -6,4 +6,10 @@
 
 omg omg hi hello!! u look so kewl :333 heres some uh styff abtout me ..
 
-my name is val, or if old friends u can call me axi!! my pronouns are they/them and also all neopronouns ^_^ sometimes he/him is alright but usually not ,, yes i will correct u if u use she/her pronouns on me I HATE SHE HER PRONOUNS!! /nsrs/silly ( i dont really mind if its on accident but if u keep doing it then ill get uncomf ) im 3-6teen !! or 13-16, im a HEAVY teardrop from bfdi fictional kin. SHE'S LITERALLY ME GANG,,!!! sometimes i do use harsh humor like being mean etc so if i make u uncomf im really sorry /gen i have anger issues and i cnat really control it but i do try my best.. also uh my status on ponytown does not mean anything mostly its on dnd / idle but it doesnt really mean anything. i dont add / friend people much uh gulps. 
+my name is val, or if old friends u can call me axi!! my pronouns are they/them and also all neopronouns ^_^ sometimes he/him is alright but usually not ,, yes i will correct u if u use she/her pronouns on me I HATE SHE HER PRONOUNS!! /nsrs/silly ( i dont really mind if its on accident but if u keep doing it then ill get uncomf ) im 3-6teen !! or 13-16, im a HEAVY teardrop from bfdi fictional kin. SHE'S LITERALLY ME GANG,,!!! sometimes i do use harsh humor like being mean and dark humor etc so if i make u uncomf im really sorry /gen i have anger issues and i cnat really control it but i do try my best.. also uh my status on ponytown does not mean anything mostly its on dnd / idle but it doesnt really mean anything. i dont add / friend people much uh gulps. my favourite colors are blue, white, black, purple!! iam lesbian + aroace + genderfluid + pangender!!
+
+please dont copy or take inspo off my skins im not very comfortable with it.
+
+my dni list :: dandys world fans/fandom, problematic fandoms, extremely freaky + pro/darkshippers + racists/sexists/homophobes etc!!
+
+my int list :: object show community, nice ppl, uh anyone not in my dni list
