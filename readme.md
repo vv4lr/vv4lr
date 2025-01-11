@@ -17,3 +17,5 @@
 　　　　　　   ~~[strawpage](https://vv4lr.straw.page)~~ ( WIP!! )
          
  　　　. 　⁺ 　 . ◟ ͜    ͜   ☆   ͜    ͜  ◞ . 　⁺ 　 .
+
+![lace](https://github.com/user-attachments/assets/962052ec-9e33-4dbc-882c-4a3b2df026f5)
