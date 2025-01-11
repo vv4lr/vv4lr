@@ -10,10 +10,10 @@
    
 　　　　  　　⤷ *val* or *axi*
         
-　　　　   　　　**they** ⁓ *xhe*　 
+　　　　   　　　**they** ⁓ *he*　 
           
-　　　　     　?! 13  -  16　　
+　　　　     　?! , ,  13  -  16　　
           
-　　　　　　   ~~[strawpage](https://vv4lr.straw.page)~~ 
+　　　　　　   ~~[strawpage](https://vv4lr.straw.page)~~ ( WIP!! )
          
  　　　. 　⁺ 　 . ◟ ͜    ͜   ☆   ͜    ͜  ◞ . 　⁺ 　 .
