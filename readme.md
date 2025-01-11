@@ -6,16 +6,16 @@
 
 
 
- 　　　　　　. 　⁺ 　 . ︵︵︵ ☆ ︵︵︵ . 　⁺ 　 .
+ 　　　　　　　　. 　⁺ 　 . ︵︵︵ ☆ ︵︵︵ . 　⁺ 　 .
    
-　　　　  　　　　　　⤷ *val* or *axi*
+　　　　  　　　　　　　　⤷ *val* or *axi*
         
-　　　　   　　　　　　　**they** ⁓ *he*　 
+　　　　   　　　　　　　　　**they** ⁓ *he*　 
           
-　　　　   　　　　  　?! , ,  13  -  16　　
+　　　　   　　　　  　　　?! , ,  13  -  16　　
           
-　　　　　　　　　　   ~~[strawpage](https://vv4lr.straw.page)~~ ( WIP!! )
+　　　　　　　　　　 　　  ~~[strawpage](https://vv4lr.straw.page)~~ ( WIP!! )
          
- 　　　　　　　. 　⁺ 　 . ◟ ͜    ͜   ☆   ͜    ͜  ◞ . 　⁺ 　 .
+ 　　　　　　　　　. 　⁺ 　 . ◟ ͜    ͜   ☆   ͜    ͜  ◞ . 　⁺ 　 .
 
 ![lace2](https://github.com/user-attachments/assets/4042853c-0ff4-4d0d-b22c-5ca89d8563b2)
